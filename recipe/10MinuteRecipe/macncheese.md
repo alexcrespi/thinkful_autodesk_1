@@ -2,7 +2,7 @@
 
 ## Cheesy things to eat
 
-name: Fred's Chili Mac
+name: Fred's Chili Mac 9546 calories
 
 description: Considered dangerous to eat in mixed company
 
