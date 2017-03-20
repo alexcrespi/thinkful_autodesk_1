@@ -9,18 +9,31 @@ description: Considered dangerous to eat in mixed company
 ingredients
 
 -1 pound penne pasta or cavatappi (hollow pasta spirals)
+
 -Salt
+
 -2 tablespoons extra-virgin olive oil, 2 turns of the pan
+
 -1 1/2 pounds ground sirloin
+
 -2 tablespoons chili powder, 2 palmfuls
+
 -Black pepper
+
 -1 onion, chopped
+
 -1 cubanelle pepper, seeded and chopped
+
 -1 red bell pepper, seeded and chopped
+
 -3 to 4 cloves garlic, chopped
+
 -1 cup beef stock
+
 -1 (28-ounce) can fire roasted crushed tomatoes
+
 -Handful basil leaves, torn
+
 -2 cups shredded smoked Cheddar or scamorza (smoked aged mozzarella)
 
 
